@@ -1,0 +1,2 @@
+# jQueruy
+ akoovonebuderadiloodustajem
